@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Bryan Thomas @bryanthxo
+- 👀 I’m interested in Coding, Learning, Video Games & RC-Cars!
+- 🌱 I’m currently learning a lot of stuff...
